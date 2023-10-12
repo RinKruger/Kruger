@@ -5,7 +5,7 @@ Tọa lạc ngay trung tâm quận 1 với không gian cực kì rộng rãi có
 
 Với đa dạng các món ăn trong thực đơn phụ hợp tất cả các đối tượng từ già trẻ lớn bé với đủ các thể loại món ăn của khắp các vùng miền và có cả món ăn nước ngoài. Qua đó có thể tự tin đáp ứng nhu cầu ăn uống của khách hàng với châm ngôn "chất lượng xứng đáng với giá tiền" và sẽ tạo sự thăng hoa trong ẩm thực với những người sành ăn nhất
 
-Ngày khai trương có có chương trình giảm giá 15% với các hóa đơn trên 1 triệu và có check-in tại nhà 
+✭Ngày khai trương có có chương trình giảm giá 15% với các hóa đơn trên 1 triệu và có check-in tại nhà 
 Địa chỉ:
 Sdt:
 Ngày khai trương:
