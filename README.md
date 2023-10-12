@@ -5,3 +5,5 @@ Với nhu cầu muốn tiếp cận đến nhiều tệp khách hàng hơn trư�
 Ngoài ra người dùng có thể xem và nắm được doanh thu của phòng khám qua các giai đoạn. Từ đó có thể tiến hành tạo bảng thống kê để lưu trữ vào hệ thống. 
 
 Bên cạnh đó, hệ thống cũng cần phải phân quyền nhằm đảm bảo vai trò phân biệt giữa người dùng, bác sĩ và tiếp tân và cũng cần quản lí các danh sách khách hàng, danh sách đơn khám theo cách tổng quát hoặc chi tiết. Với "Healthy Care" chúng tôi cam kết mang lại sự thuận tiện và hiệu quả trong việc quản lý và sử dụng dịch vụ chăm sóc sức khỏe, đồng thời cung cấp trải nghiệm tốt nhất cho cả bác sĩ và bệnh nhân. Hãy cùng chúng tôi xây dựng tương lai với sức khỏe tốt hơn.
+Trần Gia Minh
+21DH113887
